@@ -1,1 +1,1 @@
-# Maket-Normal-
+# Maket-Normal / Макет (Средний)
